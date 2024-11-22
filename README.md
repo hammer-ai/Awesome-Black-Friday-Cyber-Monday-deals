@@ -4,7 +4,7 @@ Black Friday, Cyber Monday Deals & Holidays for Developers, Techies, &amp; Enter
 
 **[Subscribe to receive deals in your email](https://app.vbout.com/subscribe-twf/f/63323)**
 
-***
+***sdf
 
 # Add Your Deals ✍️✍️
 
